@@ -11,6 +11,7 @@ I'm open for freelance projects. If you have something in mind, let's talk:
 - ✉️ **stephane@alveo.design**
 - 🌐 **[alveo.design](https://alveo.design)** — my studio
 - 📘 **[Facebook](https://www.facebook.com/free.stephane)**
+- 📷 **[Instagram](https://www.instagram.com/free.stephane/)**
 
 ## 🧰 What I do
 
