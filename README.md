@@ -8,10 +8,11 @@ I craft clean, human‑friendly **WordPress** sites, often for cultural and non�
 
 I'm open for freelance projects. If you have something in mind, let's talk:
 
-- ✉️ **stephane@alveo.design**
-- 🌐 **[alveo.design](https://alveo.design)** — my studio
-- 📘 **[Facebook](https://www.facebook.com/free.stephane)**
-- 📷 **[Instagram](https://www.instagram.com/free.stephane/)**
+- **Email** — stephane@alveo.design
+- **Studio** — [alveo.design](https://alveo.design)
+- **Facebook** — [/free.stephane](https://www.facebook.com/free.stephane)
+- **Instagram** — [@free.stephane](https://www.instagram.com/free.stephane/)
+- **TikTok** — [@freestephane](https://www.tiktok.com/@freestephane)
 
 ## 🧰 What I do
 
